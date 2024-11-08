@@ -1,5 +1,5 @@
 # Personalizar_Perfil_GitHub
-alguns Badges, gifs e muito mais para voce personalizar seu perfil aqui do github.
+ᴀʟɢᴜɴᴀs ɪɴsɪɢɴɪᴀs🛡️ ɢɪғs ʏ ᴍᴜᴄʜᴏ ᴍᴀs🔥 ᴘᴀʀᴀ ǫᴜᴇ ᴘᴇʀsᴏɴᴀʟɪᴄᴇs👤 ᴛᴜ ᴘᴇʀғɪʟ ᴀǫᴜɪ ᴇɴ ɢɪᴛʜᴜʙ.❤️
 
 ## Como usar?
 1.  escolha uma URL
